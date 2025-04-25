@@ -1,11 +1,11 @@
 # Karwaans Website
 
+![terror diagram](https://github.com/user-attachments/assets/95226458-5b2e-47bc-9b97-1371ee87255a)
 
 
-...
-2. Another item
 ⋅⋅* Unordered sub-list. 
-1. Actual numbers don't matter, just that it's a number
+1. Actual numbers don't matter, just that it's a number![Uploading terror diagram.png…]()
+
 ⋅⋅1. Ordered sub-list
 4. And another item.
 
