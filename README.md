@@ -1,10 +1,16 @@
 # _ghostterrorist_
 
 ![MoD Russia January 3rd 2025](https://github.com/user-attachments/assets/fd84e8cd-96fe-419c-85b2-c122be4b2b55)
-&ensp;
-&ensp;
-&ensp;
-&ensp;
+<space>
+<space>
+<space>
+<space>
+<space>
+<space>
+<space>
+<space>
+<space>
+<space>
 ![terror diagram](https://github.com/user-attachments/assets/95226458-5b2e-47bc-9b97-1371ee87255a)
 
 
