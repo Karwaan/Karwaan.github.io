@@ -89,7 +89,47 @@ In this rendition of the hunt, the name is redacted, but is he that is known to 
 </br>
 </br>
 </br>
-![FBI-NYPD_Joint_Terrorist_Task_Force](https://github.com/user-attachments/assets/91f12a39-bf0d-454a-b3ef-be1bd7609baa)
+![FBI-NYPD_Joint_Terrorist_Task_Force](https://github.com/user-attachments/assets/47257517-6cd5-4100-a910-de8ae51f3dfb)
+</br>
+</br>
+</br>
+For a Ghost Hunter, to better understand a ghost, they look to its past, to understand why this ghost may haunt. In this one's past, we can see that the ghostterrorist can take multiple forms, and at the same time, have no form at all. 
+</br>
+</br>
+</br>
+</br>
+</br>
+</br>
+</br>
+</br>
+</br>
+</br>
+</br>
+</br>
+</br>
+</br>
+</br>
+</br>
+</br>
+</br>
+</br>
+</br>
+</br>
+</br>
+To preface, I had come to find the ghostterrorist in the attempts to separate the two. My primary conflict had come from the difference between the definitions of the words terror and horror. Horror is the feeling of revulsion that usually follows a frightening sight, sound, or otherwise experience. By contrast, terror is usually described as the feeling of dread and anticipation that precedes the horrifying experience. But perhaps the lens of time is not applicable in delineating these identities, especially because of both of their capabilities to haunt. 
+</br>
+</br>
+</br>
+</br>
+</br>
+</br>
+</br>
+![1393034797_a3a0425bd1_z](https://github.com/user-attachments/assets/3440827b-6ebc-438d-b597-fd83991c67af)
+
+
+
+
+
 
 
 
