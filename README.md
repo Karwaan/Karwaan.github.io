@@ -89,7 +89,7 @@ In this rendition of the hunt, the name is redacted, but is he that is known to 
 </br>
 </br>
 </br>
-![FBI-NYPD_Joint_Terrorist_Task_Force](https://github.com/user-attachments/assets/47257517-6cd5-4100-a910-de8ae51f3dfb)
+![FBI-NYPD_Joint_Terrorist_Task_Force](https://github.com/user-attachments/assets/1d757dd1-d31e-4f21-b0a5-d931cef16a75)
 </br>
 </br>
 </br>
